@@ -1,1 +1,1 @@
-# OS_HW
+# Mokeeva Polina 11-902 
